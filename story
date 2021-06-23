@@ -3,4 +3,4 @@ one day the monkey gave some fruits for the crocodile wife which was injected wi
 alkfsalkfdslfj
 
 
-Righty then, i am cool and you are not LLL
+right then i am cool
